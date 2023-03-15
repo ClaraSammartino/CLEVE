@@ -8,4 +8,4 @@ Entregas año 2023
 * Lara Sarmiento, <larasarmiento09@gmail.com>
 
 <hr>
-![]
+![cambiar foto](WIN_20230315_19_35_23_Pro.jpg)
