@@ -10,3 +10,12 @@ Entregas año 2023
 <hr>
 
 ![cambiar foto](WIN_20230315_19_35_23_Pro.jpg)
+
+<hr>
+Sitios relacionados
+
+* [Website oficial de la UNCuyo](http://www.uncu.edu.ar)
+* 
+* [Sitio de la Facultad de Ingeniería](http://fing.uncu.edu.ar)
+* 
+* [Themys Logística Colaborativa](http://themys.sid.uncu.edu.ar)
