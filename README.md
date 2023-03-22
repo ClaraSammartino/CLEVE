@@ -13,7 +13,7 @@ Entregas año 2023
 
 ![cambiar foto](07C922A3-8A40-4129-93EF-C82FF025028E.jpg)
 
-![cambiar foto](07C922A3-8A40-4129-93EF-C82FF025028E.jpg)
+![cambiar foto](CA9838FE-13B2-478F-A16B-7102D010373E.jpg)
 
 <hr>
 Sitios relacionados
