@@ -9,7 +9,7 @@ Entregas año 2023
 
 <hr>
 
-![cambiar foto](WIN_20230315_19_35_23_Pro.jpg)
+![cambiar foto](D9C468A5-1870-4046-A304-C957341ED4E0.jpg)
 
 ![cambiar foto](07C922A3-8A40-4129-93EF-C82FF025028E.jpg)
 
